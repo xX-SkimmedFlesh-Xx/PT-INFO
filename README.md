@@ -10,3 +10,5 @@ If ur in my friends list plz feel free to come over and cuddle/talk with me any 
 I block freely and frequently for any reason, but I usually don't hide. Mostly just to make sure we aren't accidentally sitting together -3-
 
 Feel free to take any amount of inspiration from any of my skins. colorpick em for all I care XD I really don't mind lololol. All I ask is that u don't like.. pretend to be me or whatever? (rlly strange behavior esp if we don't know eachother lol?? IDK why you'd do that anyways.)
+
+<img width="426" height="240" alt="leftist infighting" src="https://github.com/user-attachments/assets/4390c718-8b66-4cc9-b6ba-e53dd63b56bf" />
